@@ -1,0 +1,1 @@
+This is my third Blender project. Idea wasn't mine, but I did it by myself. That was quite easy to do, but I still glad I could do that.I hope you like this cute little sushi:) 
